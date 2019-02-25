@@ -28,7 +28,6 @@ Make sure you click "View all of README.md" below to see the whole list:)
 * (3rd Option) First Aid kit https://www.amazon.com/gp/product/B000069EYA/ref=as_li_tl?ie=UTF8&tag=biipgf_100917_best-first-aid-kits-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B000069EYA&linkId=ad0e174a1a558aa470a3d6581c840c00
 
 * <h4>ONLY URBAN</h4>
-* Edc sling bag https://www.amazon.com/REEBOW-GEAR-Tactical-Military-Shoulder/dp/B06Y6949RT/ref=sr_1_27?keywords=EDC+backpack&linkCode=sl2&linkId=7950b08d34a7d73fd200d5cb19f6a8c7&qid=1550593213&s=gateway&sr=8-27&tag=offgridguru-20
 * Respirator https://www.amazon.com/3M-8511-Particulate-Respirator-10-Pack/dp/B0002YKBV2/ref=as_at?creativeASIN=B0002YKBV2&imprToken=SK0kd.KX8lk5YHNVuNrftg&slotNum=7&ie=UTF8&qid=1468854662&sr=8-1&keywords=3M+N95+Particulate+Respirator+Masks&linkCode=w61&tag=tbobg-20&linkId=bb5a7bc2866b916f933355fbc3fe0297
 * MultiCam Gloves https://www.amazon.com/Mechanix-Wear-Tactical-MultiCam-M-Pact/dp/B00LB46F5I/ref=as_at?creativeASIN=B00LB46F5I&imprToken=eq.1J-Crgw1cFrtl5GakkA&slotNum=10&ie=UTF8&qid=1468854682&sr=8-3&keywords=Mechanix+M-Pact+Gloves&linkCode=w61&tag=tbobg-20&linkId=b823f9826994f488b038cff81a6e6d42
 
